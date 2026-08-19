@@ -27,7 +27,7 @@ I'm an M.Sc. Data Science student at NMIMS Mumbai with hands-on experience build
 - 🤝 Open to collaborations on AI/ML and data science projects
 - 📍 Based in **Mumbai, India**
 - 📬 **devikajonjale04@gmail.com**
-- 📄 **[View Resume]([https://drive.google.com/file/d/1xiy-X9fffA2VX5G-Q0xu5qmRdd94lcat/view?usp=sharing](https://drive.google.com/file/d/1SxJ4tB9mWUeILRkTI-b-mdqIv1yDO2Zv/view?usp=sharing))**
+- 📄 **[View Resume](https://drive.google.com/file/d/1xiy-X9fffA2VX5G-Q0xu5qmRdd94lcat/view?usp=sharing](https://drive.google.com/file/d/1SxJ4tB9mWUeILRkTI-b-mdqIv1yDO2Zv/view?usp=sharing)**
 
 ---
 
